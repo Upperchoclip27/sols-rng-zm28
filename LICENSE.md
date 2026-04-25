@@ -1,4 +1,4 @@
-
+sol's rng professional Script is the best sol's rng Script, featuring unlimited stamina and one-hit kill. Safe and powerful for all your needs.
 
 
 
